@@ -64,3 +64,12 @@ If you're struggling to do business, here's a reality check on what little chump
 crowd. You can choose to surrender to corporate or you can risk being owned by the populist masses.  
 
 ![5156a186-e60a-4f48-9a77-5ffc3a1a20e1](https://github.com/user-attachments/assets/a3563466-16a2-46fe-ae26-7de8f0800215)
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Confused about who you are underneath? Can't see the difference between conservative and liberal? Don't know what's right for you and what's 
+right for your society. Don't think anymore. Be a populist. It's the only answer that will always fit. Just do it.  
+
+![8c260d49-8f12-4afd-8f9f-6a1dfc518cd0](https://github.com/user-attachments/assets/fba30923-55bb-4211-9cd4-4a1444c5ab8b)
+
+
