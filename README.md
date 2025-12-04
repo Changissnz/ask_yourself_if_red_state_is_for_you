@@ -44,7 +44,7 @@ I mean it, you son of a fuck ass bitch.
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 Everything happens for a reason, you know. You want to be a successful person, you gotta be populist. You wanna be populist? Don't be a 
-loser populist. You are what you eat, capische? Am I right or wrong here? Vespauche. Gulick. Don't forget. If you're going to wear a  
+loser populist. You are what you eat, capische? Am I right or wrong here? Vespauche. Gulick. Don't forget. If you're going to wear a 
 bow tie, wear a red bow tie. If you wear any other color of bow tie, you can't be seen in public with it.  
 
 ![2120e7e9-b14a-4f01-9730-987083d6e2e3](https://github.com/user-attachments/assets/6d228bdb-e189-4360-81cf-c92596b5d384)
