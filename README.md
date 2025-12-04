@@ -8,3 +8,15 @@ Ask yourself if Red State is for you. But keep it to yourself if you're in Red S
 Don't talk to me or do anything for me, bro. It looks like you have your hands full, living the high life in Red State.  
 
 ![101195a1-55bf-4c87-b879-50195ad633c3 (1)](https://github.com/user-attachments/assets/3f02defc-6cb4-4bd1-9e32-2414062420d6)
+
+Looking for more of God and less of the Red State's high life, bro? Why don't you go let the Red Priestess fulfill you?  
+
+![5af59348-5868-4fd8-aaf2-73e059e6c3c5](https://github.com/user-attachments/assets/33dba932-c442-4f87-97d1-c3d83ce0f34c)
+
+Plenty of red apples for equally red Adams.  
+
+![5cd65b7e-8747-4962-b7ac-f1fe3800196c](https://github.com/user-attachments/assets/42867862-623e-47cb-9c8a-56a26482b262)
+
+Have some red fruit. Go on. You deserve it.  
+
+![a84dd1b0-402e-4df3-ba81-84334e85cabf](https://github.com/user-attachments/assets/a8b6da10-76a9-4c3f-ad42-abc7b765f1ce)
