@@ -27,3 +27,15 @@ Plenty of red apples for equally red Adams.
 Have some red fruit. Go on. You deserve it.  
 
 ![a84dd1b0-402e-4df3-ba81-84334e85cabf](https://github.com/user-attachments/assets/a8b6da10-76a9-4c3f-ad42-abc7b765f1ce)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+Your life is yours to live, bro, even in Red State. If you can't let things go, get the fuck out of my life.  
+
+![776741b9-d91e-4ffb-9c0e-f85ca95f7dd1](https://github.com/user-attachments/assets/8b8912fd-72de-4a57-81a2-2549e341cd72)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+I mean it, you son of a fuck ass bitch. 
+
+![4f2f72ed-1286-434d-8fcf-3ff2860361ce](https://github.com/user-attachments/assets/38913a70-69be-4fc9-839d-a197e7540236)
