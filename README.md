@@ -48,3 +48,12 @@ loser populist. You are what you eat, capische? Am I right or wrong here? Vespau
 bow tie, wear a red bow tie. If you wear any other color of bow tie, you can't be seen in public with it.  
 
 ![2120e7e9-b14a-4f01-9730-987083d6e2e3](https://github.com/user-attachments/assets/6d228bdb-e189-4360-81cf-c92596b5d384)
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+I always struggle to understand why people want to be individuals. Everything is so dependent and interconnected. It's selfish and a sign 
+of weakness to choose to be alone. It's clear evidence something is not right with the person, like they're hiding something, like they 
+want to stick out from the crowd. And when the only crowds are populist crowds, well... you can guess who's the one lonely loser. The 
+individual. Populists speak for themselves. Individuals can't speak up for anyone. 
+
+![087b4aa9-33c1-4f4a-99e3-5e028e1b0f61](https://github.com/user-attachments/assets/846e4a44-feb8-468e-9948-6d9ab20ce3c2)
