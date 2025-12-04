@@ -40,3 +40,10 @@ Your life is yours to live, bro, even in Red State. If you can't let things go, 
 I mean it, you son of a fuck ass bitch. 
 
 ![4f2f72ed-1286-434d-8fcf-3ff2860361ce](https://github.com/user-attachments/assets/38913a70-69be-4fc9-839d-a197e7540236)
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Everything happens for a reason, you know. You want to be a successful person, you gotta be populist. You wanna be populist? Don't be a 
+loser populist. You are what you eat, capische? Am I right or wrong here? Vespauche. Gulick.  
+
+![2120e7e9-b14a-4f01-9730-987083d6e2e3](https://github.com/user-attachments/assets/6d228bdb-e189-4360-81cf-c92596b5d384)
