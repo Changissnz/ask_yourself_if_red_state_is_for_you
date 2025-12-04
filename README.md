@@ -57,3 +57,10 @@ want to stick out from the crowd. And when the only crowds are populist crowds, 
 individual. Populists speak for themselves. Individuals can't speak up for anyone. 
 
 ![087b4aa9-33c1-4f4a-99e3-5e028e1b0f61](https://github.com/user-attachments/assets/846e4a44-feb8-468e-9948-6d9ab20ce3c2)
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+If you're struggling to do business, here's a reality check on what little chump change you have to offer. You can't separate yourself from the 
+crowd. You can choose to surrender to corporate or you can risk being owned by the populist masses.  
+
+![5156a186-e60a-4f48-9a77-5ffc3a1a20e1](https://github.com/user-attachments/assets/a3563466-16a2-46fe-ae26-7de8f0800215)
