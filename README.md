@@ -68,7 +68,7 @@ crowd. You can choose to surrender to corporate or you can risk being owned by t
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
 Confused about who you are underneath? Can't see the difference between conservative and liberal? Don't know what's right for you and what's 
-right for your society. Don't think anymore. Be a populist. It's the only answer that will always fit. Just do it.  
+right for your society? Don't think anymore. Be a populist. It's the only answer that will always fit. Just do it.  
 
 ![8c260d49-8f12-4afd-8f9f-6a1dfc518cd0](https://github.com/user-attachments/assets/fba30923-55bb-4211-9cd4-4a1444c5ab8b)
 
