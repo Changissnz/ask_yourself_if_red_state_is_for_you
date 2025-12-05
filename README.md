@@ -94,4 +94,10 @@ But your motivations can remain entirely the same. You just have to change up yo
 
 ![4b3c7639-7eab-4e74-9d67-56744c4f55dd](https://github.com/user-attachments/assets/d3b461fc-de38-4387-aa9f-0462676d4d80)
 
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
+You're not the only one that is pressured into hate and anger. You know the story. Your life is going nowhere. You feel broke. People 
+give you nothing but the kind of attitude to make you feel embittered and persecuted. Why don't you take a step back from the manufactured 
+crises and listen to a real person, a populist? 
+
+![43f4f55a-2039-4a61-9ab2-16b6dc2f3996](https://github.com/user-attachments/assets/74cd2f73-51d1-491d-9c21-02ad04456cb6)
