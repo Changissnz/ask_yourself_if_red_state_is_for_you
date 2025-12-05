@@ -82,7 +82,8 @@ every day, that kind of stuff... you might want to do yourself a favor and take 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
 We all deserve certain things. But not everyone can lead by example. If you're one of those people, you might want to strongly consider 
-following the lead of a populist such as this guy.  
+following the lead of a populist such as this guy. Also, don't be afraid to let him trample all over you with his horse. Show some 
+populist spirit, and you'll be a real hero to the people. 
 
 ![f16ce387-a71d-49d3-8c41-029cad141937](https://github.com/user-attachments/assets/a53e2b7c-9966-4b0a-a17e-96bc43e60a7f)
 
