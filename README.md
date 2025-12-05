@@ -79,3 +79,12 @@ every day, that kind of stuff... you might want to do yourself a favor and take 
 
 ![70ae30cf-66ca-4b68-b9bc-0521cebc7787](https://github.com/user-attachments/assets/a42f4b75-3a6d-45b2-9a2a-de15eef31f5d)
 
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+We all deserve certain things. But not everyone can lead by example. If you're one of those people, you might want to strongly consider 
+following the lead of a populist such as this guy.  
+
+![f16ce387-a71d-49d3-8c41-029cad141937](https://github.com/user-attachments/assets/a53e2b7c-9966-4b0a-a17e-96bc43e60a7f)
+
+
+
