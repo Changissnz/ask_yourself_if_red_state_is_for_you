@@ -74,7 +74,7 @@ right for your society? Don't think anymore. Be a populist. It's the only answer
 
 ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
-Everyone got issues noawadays. If you are always feeling let down, constantly trying to supress your anger, getting hit with micro-aggressions 
+Everyone got issues noawadays. If you are always feeling let down, constantly trying to suppress your anger, getting hit with micro-aggressions 
 every day, that kind of stuff... you might want to do yourself a favor and take this below to heart.  
 
 ![70ae30cf-66ca-4b68-b9bc-0521cebc7787](https://github.com/user-attachments/assets/a42f4b75-3a6d-45b2-9a2a-de15eef31f5d)
