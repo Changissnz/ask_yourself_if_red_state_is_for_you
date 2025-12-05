@@ -115,3 +115,10 @@ There's no compact simple solution for the most pressing of problems. If there w
 trillions of tons of gold?  
 
 ![c41f1d15-ab14-45c6-ab83-fe11e703d836](https://github.com/user-attachments/assets/aecb1b71-e2eb-4539-8912-ad92aabc64bd)
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Some things may not go as planned. What really happens may not be ideal. But ultimately, it's about bringing people together. That's what 
+humanity demands, regardless of faith. 
+
+![d82bbb4e-32b6-4b25-a24c-8fa1f882016e](https://github.com/user-attachments/assets/cec3735a-71bb-4491-9e08-c526185bfa29)
