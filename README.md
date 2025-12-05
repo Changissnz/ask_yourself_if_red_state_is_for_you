@@ -87,5 +87,11 @@ populist spirit, and you'll be a real hero to the people.
 
 ![f16ce387-a71d-49d3-8c41-029cad141937](https://github.com/user-attachments/assets/a53e2b7c-9966-4b0a-a17e-96bc43e60a7f)
 
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Sometimes, it's the things you can't change about ourselves that you are forced to hide, for acceptance from the greater good, the populace. 
+But your motivations can remain entirely the same. You just have to change up your style a bit.  
+
+![4b3c7639-7eab-4e74-9d67-56744c4f55dd](https://github.com/user-attachments/assets/d3b461fc-de38-4387-aa9f-0462676d4d80)
 
 
