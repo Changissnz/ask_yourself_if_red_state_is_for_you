@@ -122,3 +122,9 @@ Some things may not go as planned. What really happens may not be ideal. But ult
 humanity demands, regardless of faith. 
 
 ![d82bbb4e-32b6-4b25-a24c-8fa1f882016e](https://github.com/user-attachments/assets/cec3735a-71bb-4491-9e08-c526185bfa29)
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Life doesn't have to be lived alone. You can need people. You can use people. You have to admit, right? 
+
+![7ec8bd84-98c6-4573-b0a0-e052bd7618c1](https://github.com/user-attachments/assets/f0a8357b-f1b1-44dd-8cc3-2cac0b2536ac)
