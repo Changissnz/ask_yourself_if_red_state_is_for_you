@@ -101,3 +101,10 @@ give you nothing but the kind of attitude to make you feel embittered and persec
 crises and listen to a real person, a populist? 
 
 ![43f4f55a-2039-4a61-9ab2-16b6dc2f3996](https://github.com/user-attachments/assets/74cd2f73-51d1-491d-9c21-02ad04456cb6)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Hey. Look on the bright side, the side with the warmth and compassion and understanding that is populism. It's never too late for you to 
+change. 
+
+![3ef50271-85d1-4025-85f6-7462f0a692f5](https://github.com/user-attachments/assets/e51ad31a-4cc6-4d34-baaf-1b5325779ab3)
