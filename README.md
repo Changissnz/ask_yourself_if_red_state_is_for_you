@@ -108,3 +108,10 @@ Hey. Look on the bright side, the red side with the warmth and compassion and un
 change. 
 
 ![3ef50271-85d1-4025-85f6-7462f0a692f5](https://github.com/user-attachments/assets/e51ad31a-4cc6-4d34-baaf-1b5325779ab3)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+There's no compact simple solution for the most pressing of problems. If there was, don't you think it would be written in a book worth 
+trillions of tons of gold?  
+
+![c41f1d15-ab14-45c6-ab83-fe11e703d836](https://github.com/user-attachments/assets/aecb1b71-e2eb-4539-8912-ad92aabc64bd)
