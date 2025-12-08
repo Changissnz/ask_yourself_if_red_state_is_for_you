@@ -128,3 +128,10 @@ humanity demands, regardless of faith.
 Life doesn't have to be lived alone. You can need people. You can use people. You have to admit, right? 
 
 ![7ec8bd84-98c6-4573-b0a0-e052bd7618c1](https://github.com/user-attachments/assets/f0a8357b-f1b1-44dd-8cc3-2cac0b2536ac)
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+This about shows the apex of political innovation. So ask yourself... is Red State really for you? Would you put yourself in the line of 
+fire for Red State? What places can Red State take you? Make you an Oppenheimer? Or how about that Russian bomb maker...Andrei Sakharov? 
+
+![7a43370f-da3d-4e36-b63e-819f529e33ab](https://github.com/user-attachments/assets/db888cda-41b2-4e1f-9b88-ab7b98c1b278)
