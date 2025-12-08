@@ -133,5 +133,7 @@ Life doesn't have to be lived alone. You can need people. You can use people. Yo
 
 This about shows the apex of political innovation. So ask yourself... is Red State really for you? Would you put yourself in the line of 
 fire for Red State? What places can Red State take you? Make you an Oppenheimer? Or how about that Russian bomb maker...Andrei Sakharov? 
+In your dreams, Reddo. In your dreams. I'll see you, after your little war victory, reduced to poverty as new Red leaders take everything 
+from you in the name of Red State. And you... you will haunt yourself by repeatedly asking yourself, "killing in the name of?" 
 
 ![7a43370f-da3d-4e36-b63e-819f529e33ab](https://github.com/user-attachments/assets/db888cda-41b2-4e1f-9b88-ab7b98c1b278)
